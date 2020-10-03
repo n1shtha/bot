@@ -1,2 +1,2 @@
 # bot
-no thx
+bot army zindabad
